@@ -94,7 +94,7 @@
 
 ## Donald Trump
 
-有很多关于Trump的预言和解读：
+有很多关于Trump的预言和解读。虽然在2021年1月20日之前什么事情都有可能发生，但是个人感觉目前 Trump 已经度过了最艰难的阶段：
 
 1. 先知撒督（Prophet Sadhu Sundar Selvaraj）的预言 [美国大选 预言｜先知撒督关于特朗普总统和美国大选的预言 ｜川普必须赢得大选。 | 广角镜译制](https://youtu.be/Hmm8fORchlc)
 2. 英文原版 [Elections 2020 & The Destiny of America (Part 2)// Prophet Sadhu Sundar Selvaraj](https://youtu.be/INs-mVQUCD0)

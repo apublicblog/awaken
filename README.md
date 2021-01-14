@@ -2,7 +2,7 @@
 
 ## 光明会 Illuminati
 
-猪妹的视频（Member Only，目前只有会员可见）：
+猪妹的视频（Member Only，目前只有她的频道会员可见）：
 
 1. [揭秘 | 光明会，共济会是如何控制这个世界的](https://youtu.be/XNFS5deTgiQ)
 2. [猪妹 | 揭秘光明会，苹果电脑送修引发的惊天秘密，“Q” 觉醒运动是阴谋论吗？奥巴马火星基地！君士坦丁撒旦教崇拜修改圣诞节！](https://youtu.be/xseWSZiHKj4)

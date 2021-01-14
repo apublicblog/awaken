@@ -63,14 +63,14 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 
 1. Andromedans 仙女星人
 2. Arcturians 大角星人
-3. Jinn
-4. Lion
-5. Lyra 天琴 / Vega 织女
-6. Mantis
-7. Orion 猎户
-8. Pleiadians 昴宿星人
-9. Reptilians 蜥蜴人
-10. Draconian, Draco-Reptilian 天龙人
+3. Draconian, Draco-Reptilian 天龙人
+4. Jinn
+5. Lion
+6. Lyra 天琴 / Vega 织女
+7. Mantis
+8. Orion 猎户
+9. Pleiadians 昴宿星人
+10. Reptilians 蜥蜴人
 11. Sirians 天狼星人
 12. Ra 蓝鸟人（？）
 13. Zeta Reticulians, Grey 灰人, 泽塔双星人, 网罟座ζ

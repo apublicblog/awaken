@@ -43,15 +43,15 @@
 2. 英文原版，但是没有字幕 [SIMON PARKES: The Project Avalon Interview (English version but w/o subtitles)](https://youtu.be/w6dxXAAAIp4)
 3. Simon Parkes 主页，包含他的 blogs 作为主要的消息发布渠道。如果想获得最新的大选消息，就请刷他的 blogs 吧 <https://www.simonparkes.org/>
 
-一些书籍：
+有一些书籍介绍了相关的外星人经历，其中的《海奥华预言》和《一的法则》经常被中文 YouTuber 提到：
 
 1. 海奥华预言，*Thiaoouba: The Golden Planet: A true report by the Author who was PHYSICALLY ABDUCTED to another planet*
 2. 一的法则，*The Ra Material: Law of One*
 3. Simon Parkes 推荐：
     1. *It Awaits Us*
     2. *THE PANDORA QUEST (IT AWAITS US Book 2)*
-4. Secret Space Programs (5 book series) by Michael Salla (Author), Michael E. Salla (Author), Michael E. Salla (Author), Robert Wood (Foreword)
-5. The Biggest Secret: The book that will change the World by David Icke
+
+<!-- 5. The Biggest Secret: The book that will change the World by David Icke -->
 
 目前一些经常被人们提到的外星人种（races）:
 
@@ -134,3 +134,5 @@
     2. 文字：<http://www.jsufo.com/thread-1290-1-1.html>
 4. 《超载信仰》节目：
     1. 视频：<http://www.jsufo.com/forum.php?mod=viewthread&tid=41&extra=page%3D1%26filter%3Dtypeid%26typeid%3D22>
+5. 相关书籍：
+    1. Secret Space Programs (5 book series) by Michael Salla (Author), Michael E. Salla (Author), Michael E. Salla (Author), Robert Wood (Foreword)

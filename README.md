@@ -124,7 +124,7 @@
 
 1. [《揭露宇宙》观后感](https://zhuanlan.zhihu.com/p/67901143)
 2. Cosmic Disclosure 1-120 视频中英文字幕：
-    1. [cosmic disclosure 【中英文字幕】/揭露宇宙 1-8集【清晰版本](https://www.bilibili.com/video/BV1uW411G7fZ)
+    1. [cosmic disclosure 【中英文字幕】/揭露宇宙 1-8集【清晰版本】](https://www.bilibili.com/video/BV1uW411G7fZ)
     2. [cosmic disclosure 【中英文字幕】/揭露宇宙 9-23集](https://www.bilibili.com/video/BV1cW411G796)
     3. [cosmic disclosure 【中英文字幕】/揭露宇宙 24-60集](https://www.bilibili.com/video/BV1gW411G7su)
     4. [cosmic disclosure 【中英文字幕】/揭露宇宙 61-100集](https://www.bilibili.com/video/BV1ms411n7nU)

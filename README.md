@@ -113,7 +113,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 1. [Simon Parkes 12th January Update Current News](https://youtu.be/SkBefjl_fB8)
 2. [中文总结：赢定了！老川与军方早有合作！量子计算机预测未来！美联储即将废除！【猪妹piggirl】](https://youtu.be/eHx_no4HFSc)
 
-可以看得出来，目前猪妹的时事视频是以 Simon Parkes 的时事视频为主要内容，并配合她本人的总结和考证，非常有参考价值。到目前为止（1/13/2021）比较重要的总结视频是 Simon Parkes 的采访，里面总结了Trump的现状，未来事态的发展，几个重要人物的现状和未来，包括Pence, Pompeo, L. Lin Wood, Flynn, etc.。预计猪妹也会发布中文整理视频：
+可以看得出来，目前猪妹的时事视频是以 Simon Parkes 的时事视频为主要内容，并配合她本人的总结和考证，非常有参考价值。到目前为止（1/13/2021）比较重要的总结视频是 Simon Parkes 的采访，里面总结了Trump的现状，未来事态的发展，几个重要人物的现状和未来，包括Pence, Pompeo, L. Lin Wood, Flynn, etc.。预计猪妹也会整理发布中文视频：
 
 1. [Simon Parkes Interview by Doug Billings from The Right Side](https://youtu.be/sR7UavM0E1U)
 

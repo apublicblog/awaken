@@ -20,7 +20,7 @@
     3. <https://www.bitchute.com/channel/NQVKHR8qbC3d/>
     4. <https://www.dropbox.com/sh/mvb8yjx2t3vj2fg/AABFOsbAyMxogeqaDHkxP9Y5a?dl=0>
 
-有一套著名的光明会卡片游戏 *Illuminati: New World Order (INWO)*，是1994年出版的一副卡牌游戏（collectible card game）。卡牌上的插图和事件，有许多变成了在现实世界中真实发生的事件，比如最著名的911事件。普遍认为 INWO 就是是光明会的真实计划。为何计划会以卡牌的形式流出？简单的猜测是卡牌作者 Steve Jackson 是一个 hacker，计划是他窃取到的。复杂的猜测是光明会想让大众知道自己的强大，散布恐惧，从而引导人类的负面情绪。以下是一个非常简短的卡牌介绍：
+有一套著名的光明会卡片游戏 *Illuminati: New World Order (INWO)*，是1994年出版的一副卡牌游戏（collectible card game）。卡牌上的许多插图和事件，后来成为了在现实世界中真实发生的事件，比如最著名的911事件。普遍认为 INWO 就是光明会的真实计划。为何计划会以卡牌的形式流出？简单的猜测是卡牌作者 Steve Jackson 是一个 hacker，计划是他窃取到的。复杂的猜测是光明会想让大众知道自己的强大，散布恐惧，从而引导人类的负面情绪。以下是一个非常简短的卡牌介绍：
 
 1. [新世界秩序的劇本, 光明卡, 多個預言, 準確無誤地"被"進行, 東京奧運有炸彈事件, 更預示了美國總統特朗普的結局?](https://youtu.be/IUclJtZavmc)
 

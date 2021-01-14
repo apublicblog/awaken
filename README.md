@@ -132,7 +132,7 @@
 3. 之后的节目汇总：
     1. 视频：<http://www.jsufo.com/thread-38-1-1.html>
     2. 文字：<http://www.jsufo.com/thread-1290-1-1.html>
-4. 《超载信仰》节目：
+4. 《超越信仰》节目：
     1. 视频：<http://www.jsufo.com/forum.php?mod=viewthread&tid=41&extra=page%3D1%26filter%3Dtypeid%26typeid%3D22>
 5. 相关书籍：
     1. Secret Space Programs (5 book series) by Michael Salla (Author), Michael E. Salla (Author), Michael E. Salla (Author), Robert Wood (Foreword)

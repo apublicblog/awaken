@@ -104,7 +104,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 
 1. 先知撒督（Prophet Sadhu Sundar Selvaraj）的预言 [美国大选 预言｜先知撒督关于特朗普总统和美国大选的预言 ｜川普必须赢得大选。 | 广角镜译制](https://youtu.be/Hmm8fORchlc)
 2. 英文原版 [Elections 2020 & The Destiny of America (Part 2)// Prophet Sadhu Sundar Selvaraj](https://youtu.be/INs-mVQUCD0)
-3. [川普是时空穿越者？！时间线战争，大觉醒的真相，预言卡牌背后的秘密！这个瓜，不信有人能吃下去！【猪妹piggirl](https://youtu.be/Q66GFQLA1CI)
+3. [川普是时空穿越者？！时间线战争，大觉醒的真相，预言卡牌背后的秘密！这个瓜，不信有人能吃下去！【猪妹piggirl】](https://youtu.be/Q66GFQLA1CI)
 4. [川普是未来人，彭斯体内有双重人格！时间线已经改变！信息量海了，这次真的hold不住了！！【猪妹piggirl】](https://youtu.be/pNnWE8vi9m0)
 5. [奇门遁甲 | 活着！活着！活着才是硬道理！一个铜皮铁骨一身钢，另一个命比纸薄、鞋比天高；六星连珠阴极阳生才是世界的转折点！(20210108第77期)](https://youtu.be/8cegliubC-A)
 

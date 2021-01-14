@@ -70,7 +70,7 @@
 13. Zeta Reticulians, Grey 灰人, 泽塔双星人, 网罟座ζ
 14. Zulus
 
-其中 Reptilians 是代表邪恶的高级外星人（evil），他们奴役人类，很可能是光明会背后的控制者。猜想是光明会接受 Reptilians 的能力，或是很多政要和达官贵人本身就是 Reptilians 的灵魂或宿体。他们为了奴役人类，会散播恐惧和抑郁能量，不让人类发现自己灵魂的真正力量。Grey 可能是他们的手下，因为过度改造身体而无法繁衍。猪妹有过一期相关视频：
+其中 Reptilians 是代表邪恶的高级外星人（evil），他们奴役人类，很可能是光明会背后的控制者。猜想是光明会接受 Reptilians 的能力，或是很多政要和达官贵人本身就是 Reptilians 的灵魂或宿体。他们为了奴役人类，会散播恐惧和抑郁能量，不让人类发现自己灵魂的真正力量。小灰人 Grey （[Roswell UFO Incident](https://en.wikipedia.org/wiki/Roswell_UFO_incident)）可能是他们的手下，因为过度改造身体而无法繁衍。猪妹有过一期相关视频：
 
 1. [地球只是培养皿！谁在吸食人类的抑郁能量？海奥华预言和圣经的冲突。](https://youtu.be/Q-M__yS90PM)
 

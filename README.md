@@ -20,7 +20,7 @@
     3. <https://www.bitchute.com/channel/NQVKHR8qbC3d/>
     4. <https://www.dropbox.com/sh/mvb8yjx2t3vj2fg/AABFOsbAyMxogeqaDHkxP9Y5a?dl=0>
 
-Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源。据说总共会有17个部分（17 parts），但是目前找到的只有前6部分，也是大约2小时50分钟：
+Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源。据说总共会有十七个部分（17 parts），但是目前找到的只有前6部分，也是大约2小时50分钟：
 
 1. English w/o subtitles: <https://www.bitchute.com/video/8fX63o0mRnSU/>
 2. English YouTube auto subtitles（有可能会被 YouTube 删除）: <https://youtu.be/ID6zwlN9S5M>

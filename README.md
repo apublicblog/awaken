@@ -98,7 +98,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 
 <!-- <img src="figures/power.jpg" alt="能量层级图" width="600"> -->
 
-## Donald Trump
+## Donald J. Trump
 
 有很多关于Trump的预言和解读。虽然在2021年1月20日之前什么事情都有可能发生，但是个人感觉目前 Trump 已经度过了最艰难的阶段：
 

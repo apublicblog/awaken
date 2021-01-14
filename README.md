@@ -26,10 +26,11 @@
 
 ## COVID-19
 
-疫情有可能是光明会的一次有预谋的行动，是The Anglo-Saxon Mission的一部分。作者提到这个计划很可能是外星人所为，而且包含了正反两面外星人的较量。反面外星人想控制人类，而正面外星人在帮助人类：
+疫情有可能是光明会的一次有预谋的行动，是 The Anglo-Saxon Mission 的一部分。下面视频的作者提到这个计划背后很可能是外星人所为，而且包含了正反两面外星人的较量。反面外星人想控制人类，而正面外星人在帮助人类。请注意三点：1) 视频 15:00 以后提到“China will catch a cold.” 2) 视频发布于2010年，提到的会议发生在2005年，3) COVID-19 大规模爆发于2019年：
 
 1. English version: [EN - The Anglo-Saxon Mission [This version with English subtiltes]](https://youtu.be/TmWM51mTY_c)
 2. 中文版：[ZH-CN 盎格鲁•撒克逊计划](https://youtu.be/d86DRn7T098)
+3. 采访稿 [The Anglo-Saxon Mission: Witness Interview transcript](https://projectcamelot.org/lang/en/anglo_saxon_mission_interview_transcript_en.html)
 
 猪妹的会员视频里也有介绍，以下为不太重要的补充，说的是现在的检测方法会导致 false positive：
 

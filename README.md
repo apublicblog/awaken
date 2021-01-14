@@ -2,8 +2,6 @@
 
 ## 光明会 Illuminati
 
--------------------------------------------------
-
 猪妹的视频（Member Only，目前只有会员可见）：
 
 1. [揭秘 | 光明会，共济会是如何控制这个世界的](https://youtu.be/XNFS5deTgiQ)
@@ -28,8 +26,6 @@
 
 ## COVID-19
 
--------------------------------------------------
-
 疫情有可能是光明会的一次有预谋的行动，是The Anglo-Saxon Mission的一部分。作者提到这个计划很可能是外星人所为，而且包含了正反两面外星人的较量。反面外星人想控制人类，而正面外星人在帮助人类：
 
 1. English version: [EN - The Anglo-Saxon Mission [This version with English subtiltes]](https://youtu.be/TmWM51mTY_c)
@@ -40,8 +36,6 @@
 1. [大忽悠PCR检测法，可口可乐也阳性了！白在家里憋了那么久，看到本影片的我眼泪流下来！](https://youtu.be/oa7BGyVD-EQ)
 
 ## 外星人（Extraterrestrial, Interdimensional）
-
--------------------------------------------------
 
 *Simon Parkes* 是一个外星人专家（hmm，不知道这么说准不准确）。他自称自己的灵魂有1/3的 Mantis，1/3的 Reptilian，和1/3的人类，自己的 Mentor 是一个 Mantis。他的消息来源非常独特，是现在时事发展的主要透露者，有来自核心圈的直接消息源。他在 The Project Avalon 的采访中介绍了很多外星人种，也谈到了自己：
 
@@ -94,13 +88,11 @@
 
 能量层级图，来源是 *David R. Hawkins* 的著作 *Power vs. Force*。下图来源于网上：
 
-<!-- ![能量层级图](figures/power.jpg "能量层级图") -->
+![能量层级图](figures/power.jpg "能量层级图")
 
-<img src="figures/power.jpg" alt="能量层级图" width="400">
+<!-- <img src="figures/power.jpg" alt="能量层级图" width="600"> -->
 
 ## Donald Trump
-
--------------------------------------------------
 
 有很多关于Trump的预言和解读：
 
@@ -108,7 +100,7 @@
 2. 英文原版 [Elections 2020 & The Destiny of America (Part 2)// Prophet Sadhu Sundar Selvaraj](https://youtu.be/INs-mVQUCD0)
 3. [川普是时空穿越者？！时间线战争，大觉醒的真相，预言卡牌背后的秘密！这个瓜，不信有人能吃下去！【猪妹piggirl](https://youtu.be/Q66GFQLA1CI)
 4. [川普是未来人，彭斯体内有双重人格！时间线已经改变！信息量海了，这次真的hold不住了！！【猪妹piggirl】](https://youtu.be/pNnWE8vi9m0)
-5. [奇门遁甲 | 活着！活着！活着才是硬道理！一个铜皮铁骨一身钢，另一个命比纸薄、鞋比天高；六星连珠阴极阳生才是世界的转折点！(20210108第77期) ](https://youtu.be/8cegliubC-A)
+5. [奇门遁甲 | 活着！活着！活着才是硬道理！一个铜皮铁骨一身钢，另一个命比纸薄、鞋比天高；六星连珠阴极阳生才是世界的转折点！(20210108第77期)](https://youtu.be/8cegliubC-A)
 
 最重要的消息似乎都是 Simon Parkes 发布的（<https://www.simonparkes.org/>）。关于Trump背后的 Q 和 Anon，Simon Parkes 提供了一些震撼但是可靠的消息，即 Q 背后是四个人和一台量子计算机（quantum computer）：
 
@@ -121,8 +113,6 @@
 
 ## 未来人（Men from the Future）
 
--------------------------------------------------
-
 目前有三个有名的未来人，分别是 KFK2060，2062，和 YJ2075。详细的文本资料有很多，但是内容太多了。例如，仅KFK一人就在豆瓣上留下过超过四百条回复，后来还写过博客和诗，但是豆瓣已经将他的留言全部删除了。我没有全部收集，只看了两个总结视频：
 
 1. [未來人KFK，2062，YJ2075最全橫向大對比（上）| Viv is talking](https://youtu.be/u4MN07_xXow)
@@ -130,20 +120,17 @@
 
 ## 秘密太空计划 Secret Space Program (SSP)
 
--------------------------------------------------
-
 科里古德 *Corey Goode* 是SSP的主要揭露者，他参加了 *David Wilcock* 的节目《揭露宇宙》（*Cosmic Disclosure*）。也就是他提到了蓝鸟人，似乎是正面外星人的典型。网上其实已经有很多资料，还需要继续收集：
 
-1. 《揭露宇宙》观后感 https://zhuanlan.zhihu.com/p/67901143 
+1. [《揭露宇宙》观后感](https://zhuanlan.zhihu.com/p/67901143)
 2. Cosmic Disclosure 1-120 视频中英文字幕：
-    1. cosmic disclosure 【中英文字幕】/揭露宇宙 1-8集【清晰版本】 https://www.bilibili.com/video/BV1uW411G7fZ 
-    2. cosmic disclosure 【中英文字幕】/揭露宇宙 9-23集 https://www.bilibili.com/video/BV1cW411G796 
-    3. cosmic disclosure 【中英文字幕】/揭露宇宙 24-60集 https://www.bilibili.com/video/BV1gW411G7su 
-    4. cosmic disclosure 【中英文字幕】/揭露宇宙 61-100集 https://www.bilibili.com/video/BV1ms411n7nU
-    5. cosmic disclosure 【中英文字幕】/揭露宇宙 101-120集 https://www.bilibili.com/video/BV1UW411r7Ad
+    1. [cosmic disclosure 【中英文字幕】/揭露宇宙 1-8集【清晰版本](https://www.bilibili.com/video/BV1uW411G7fZ)
+    2. [cosmic disclosure 【中英文字幕】/揭露宇宙 9-23集](https://www.bilibili.com/video/BV1cW411G796)
+    3. [cosmic disclosure 【中英文字幕】/揭露宇宙 24-60集](https://www.bilibili.com/video/BV1gW411G7su)
+    4. [cosmic disclosure 【中英文字幕】/揭露宇宙 61-100集](https://www.bilibili.com/video/BV1ms411n7nU)
+    5. [cosmic disclosure 【中英文字幕】/揭露宇宙 101-120集](https://www.bilibili.com/video/BV1UW411r7Ad)
 3. 之后的节目汇总：
-    1. 视频：http://www.jsufo.com/thread-38-1-1.html 
-    2. 文字：http://www.jsufo.com/thread-1290-1-1.html
-4.	《超载信仰》节目：
-    1. 视频：http://www.jsufo.com/forum.php?mod=viewthread&tid=41&extra=page%3D1%26filter%3Dtypeid%26typeid%3D22 
-
+    1. 视频：<http://www.jsufo.com/thread-38-1-1.html>
+    2. 文字：<http://www.jsufo.com/thread-1290-1-1.html>
+4. 《超载信仰》节目：
+    1. 视频：<http://www.jsufo.com/forum.php?mod=viewthread&tid=41&extra=page%3D1%26filter%3Dtypeid%26typeid%3D22>

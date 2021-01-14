@@ -122,7 +122,7 @@
 
 科里古德 *Corey Goode* 是SSP的主要揭露者，他参加了 *David Wilcock* 的节目《揭露宇宙》（*Cosmic Disclosure*）。也就是他提到了蓝鸟人，似乎是正面外星人的典型。网上其实已经有很多资料，还需要继续收集：
 
-1. [《揭露宇宙》观后感](https://zhuanlan.zhihu.com/p/67901143)
+1. 一篇总结文章 [《揭露宇宙》观后感](https://zhuanlan.zhihu.com/p/67901143)
 2. Cosmic Disclosure 1-120 视频中英文字幕：
     1. [cosmic disclosure 【中英文字幕】/揭露宇宙 1-8集【清晰版本】](https://www.bilibili.com/video/BV1uW411G7fZ)
     2. [cosmic disclosure 【中英文字幕】/揭露宇宙 9-23集](https://www.bilibili.com/video/BV1cW411G796)

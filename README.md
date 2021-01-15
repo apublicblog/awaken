@@ -121,6 +121,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 可以看得出来，目前猪妹的时事视频是以 Simon Parkes 的时事视频为主要内容，并配合她本人的总结和考证，非常有参考价值。到目前为止（1/13/2021）比较重要的总结视频是 Simon Parkes 的采访，里面总结了Trump的现状，未来事态的发展，几个重要人物的现状和未来，包括Pence, Pompeo, L. Lin Wood, Flynn, etc.。预计猪妹也会整理发布中文视频：
 
 1. [Simon Parkes Interview by Doug Billings from The Right Side](https://youtu.be/sR7UavM0E1U)
+2. [Interview with Simon Parkes & Charlie Ward](https://youtu.be/WKf32XRgWXc)
 
 Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发布的东西。据说 JFK 是为数不多没有被光明会控制的美国总统。他生前有许多未完成的计划，以扭转光明会对世界的控制，但是最终于1963年被刺杀。以下是一些相关计划：
 

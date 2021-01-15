@@ -11,7 +11,7 @@
 
 1. [深度解析｜共济会乔治亚石碑的真正秘密，后圣经时代预言！阿努纳奇尼比鲁星球回归，磁极移动末日到来！大洪水史前历史，石碑新十诫是阴谋还是救赎？](https://youtu.be/JTGsDmOmSoU)
 
-荷兰人 *Janet Ossebaard* 拍摄的纪录片 *Fall of the Cabal*，总共有十个部分（10 parts），大约3小时，主要讲述光明会对世界的控制，以及背后隐藏的关于恋童癖（pedophilia），肾上腺素红（adrenochrome）等等邪恶事物:
+荷兰人 *Janet Ossebaard* 拍摄的纪录片 *Fall of the Cabal*，总共有十个部分（10 parts），大约3小时，主要讲述光明会对世界的控制，以及背后隐藏的关于儿童贩卖（child trafficking），恋童癖（pedophilia），肾上腺素红（adrenochrome）等等邪恶事物:
 
 1. English w/o subtitles: <https://www.bitchute.com/video/MYHTpUW9KAXQ/>
 2. 中文字幕版 Chinese subtitles version (以下为多方备份):

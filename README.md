@@ -128,6 +128,10 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 1. NESARA / GESARA: The National / Global Economic Security & Reformation Act。该方案是为了让美国或世界金融系统回归金本位。与之相背的是1913年美联储（Federal Reserve System）的建立，背后是 Roadshield, Mogan, Rockefeller 等等家族对整个金融系统的控制。
     1. 相关事件还有1912年的泰坦尼克号（Titanic）沉没事件。当时船上有反对建立美联储的几个超级富豪，最后全部在事件中丧生。
 
+关于美国本身的历史和法律问题还有一些疑惑，需要进一步研究：
+1. [The United States Isn't a Country — It's a Corporation!](https://www.serendipity.li/jsmill/us_corporation.htm)
+2. [Government vs. Corporations](http://landgrantpatent.org/government.html)
+
 ## 未来人（Men from the Future）
 
 目前有三个有名的未来人，分别是 KFK2060，2062，和 YJ2075。详细的文本资料有很多，但是内容太多了。例如，仅 KFK 一人就在豆瓣上留下过超过四百条回复，后来还写过博客和诗，但是豆瓣已经将他的留言全部删除了。我没有看完全部，不过 KFK 的一句“*希望 2019 年的人能记得，上半年是你们最美好的一年，下半年进入的动荡，会是人类未来的常态。*”还是犹言在耳。下面是两个总结视频：

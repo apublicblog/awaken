@@ -125,7 +125,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 
 Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发布的东西。据说 JFK 是为数不多没有被光明会控制的美国总统。他生前有许多未完成的计划，以扭转光明会对世界的控制，但是最终于1963年被刺杀。以下是一些相关计划：
 
-1. NESARA / GESARA: The National / Global Economic Security & Reformation Act。该方案是为了让美国或世界金融系统回归金本位。与之相背的是1913年美联储（Federal Reserve System）的建立，背后是 Rothschild, Mogan, Rockefeller 等等家族对整个金融系统的控制。
+1. NESARA / GESARA: The National / Global Economic Security & Reformation Act。该方案是为了让美国或世界金融系统回归金本位（gold standard）。与之相背的是1913年美联储（Federal Reserve System）的建立，背后是 Rothschild, Mogan, Rockefeller 等等家族对整个金融系统的控制。
     1. 相关事件还有1912年的泰坦尼克号（Titanic）沉没事件。当时船上有反对建立美联储的几个超级富豪，最后全部在事件中丧生。
 
 关于美国本身的历史和法律问题还有一些疑惑，需要进一步研究：

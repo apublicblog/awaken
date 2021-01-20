@@ -53,7 +53,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 2. [疫苗的专利](https://patents.google.com/patent/US10130701B2/en)早在2019年前就有了（2012或2016年）。专利持有者（Pirbright Institute）归属于 Rothschild 家族。
 3. The Pentagon（美国国防部）知道疫苗有问题，所以用普通的 flu shot 代替了有问题的疫苗。
 
-Mel K 和 Dr Charlie Ward的视频：
+Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对大选情况的分析（到1/18/2021）：
 
 1. English w/ auto subtitles on YouTube: <https://youtu.be/W3Q5kCmmf4k>
 2. English w/o subtitles on Bitchute: <https://www.bitchute.com/video/mejRLRPSfpV1/>
@@ -61,6 +61,40 @@ Mel K 和 Dr Charlie Ward的视频：
 猪妹的会员视频里也有介绍，以下为不太重要的补充，说的是现在的检测方法会导致 false positive：
 
 1. [大忽悠PCR检测法，可口可乐也阳性了！白在家里憋了那么久，看到本影片的我眼泪流下来！](https://youtu.be/oa7BGyVD-EQ)
+
+## Donald J. Trump
+
+有很多关于Trump的预言和解读。虽然在2021年1月20日之前什么事情都有可能发生，但是个人感觉目前 Trump 已经度过了最艰难的阶段：
+
+1. 先知撒督（Prophet Sadhu Sundar Selvaraj）的预言 [美国大选 预言｜先知撒督关于特朗普总统和美国大选的预言 ｜川普必须赢得大选。 | 广角镜译制](https://youtu.be/Hmm8fORchlc)
+2. 英文原版 [Elections 2020 & The Destiny of America (Part 2)// Prophet Sadhu Sundar Selvaraj](https://youtu.be/INs-mVQUCD0)
+3. [川普是时空穿越者？！时间线战争，大觉醒的真相，预言卡牌背后的秘密！这个瓜，不信有人能吃下去！【猪妹piggirl】](https://youtu.be/Q66GFQLA1CI)
+4. [川普是未来人，彭斯体内有双重人格！时间线已经改变！信息量海了，这次真的hold不住了！！【猪妹piggirl】](https://youtu.be/pNnWE8vi9m0)
+5. [奇门遁甲 | 活着！活着！活着才是硬道理！一个铜皮铁骨一身钢，另一个命比纸薄、鞋比天高；六星连珠阴极阳生才是世界的转折点！(20210108第77期)](https://youtu.be/8cegliubC-A)
+
+最重要的消息似乎都是 Simon Parkes 发布的（<https://www.simonparkes.org/>）。关于Trump背后的 Q 和 Anon，Simon Parkes 提供了一些震撼但是可靠的消息，即 Q 背后是四个人和一台量子计算机（quantum computer）：
+
+1. [Simon Parkes 12th January Update Current News](https://youtu.be/SkBefjl_fB8)
+2. [中文总结：赢定了！老川与军方早有合作！量子计算机预测未来！美联储即将废除！【猪妹piggirl】](https://youtu.be/eHx_no4HFSc)
+
+可以看得出来，目前猪妹的时事视频是以 Simon Parkes 和 Robert David Steele 的时事视频为主要内容，并配合她本人的总结和考证，非常有参考价值。有几个比较重要的总结视频是 Simon Parkes 的采访，里面总结了Trump的现状，未来事态的发展，对1月20日 inauguration 的预测，1月20日之后六周的情况，未来的新美国（Republic of America），几个重要人物的现状和未来。预计猪妹也会整理发布中文视频：
+
+1. 1/12/2021 [Simon Parkes Interview by Doug Billings from The Right Side](https://youtu.be/sR7UavM0E1U)
+2. 1/14/2021 [Interview with Simon Parkes & Charlie Ward](https://youtu.be/WKf32XRgWXc)
+
+Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发布的东西。据说 JFK 是为数不多没有被光明会控制的美国总统。他生前有许多未完成的计划，以扭转光明会对世界的控制，但是最终于1963年被刺杀。Simon Parkes 和 Charlie Ward 都有提到。以下是一些相关计划：
+
+1. NESARA / GESARA: The National / Global Economic Security & Reformation Act。该方案是为了让美国或世界金融系统回归金本位（gold standard）。与之相背的是1913年美联储（Federal Reserve System）的建立，背后是 Rothschild, Mogan, Rockefeller 等等家族对整个金融系统的控制。
+    1. 相关事件还有1912年的泰坦尼克号（Titanic）沉没事件。当时船上有反对建立美联储的几个超级富豪，最后全部在事件中丧生。
+
+关于美国本身的历史和法律问题，很多人（例如 Dr Charlie Ward）提到，美国宪法的精神在1871年时已经被修改。当时国会通过了 Act of 1871，把美国变成了一个公司 *THE UNITED STATES OF AMERICA*（全大写表示 corporation），公司的时效从1871年到2019年6月。从时间上来看，现在“美国”这个公司已经解散了，因此2020年的大选从某种程序上来说是没有意义的。这一个知识点有点难，我还没有完全理解。以下有一些文章讨论了 Act of 1871，猪妹有一集视频也提到了这个问题：
+
+1. [The United States Isn't a Country — It's a Corporation!](https://www.serendipity.li/jsmill/us_corporation.htm)
+2. [Government vs. Corporations](http://landgrantpatent.org/government.html)
+3. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 1](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is.html)
+4. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 2](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is_15.html)
+5. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 3](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is_5.html)
+6. [21号进去那个一定不合法！川普是最后一任总统！！美国实际有2部宪法？【猪妹piggirl】](https://youtu.be/yipKZ59wEB4)
 
 ## 外星人（Extraterrestrial, Interdimensional）
 
@@ -118,35 +152,6 @@ Mel K 和 Dr Charlie Ward的视频：
 ![能量层级图](figures/power.jpg "能量层级图")
 
 <!-- <img src="figures/power.jpg" alt="能量层级图" width="600"> -->
-
-## Donald J. Trump
-
-有很多关于Trump的预言和解读。虽然在2021年1月20日之前什么事情都有可能发生，但是个人感觉目前 Trump 已经度过了最艰难的阶段：
-
-1. 先知撒督（Prophet Sadhu Sundar Selvaraj）的预言 [美国大选 预言｜先知撒督关于特朗普总统和美国大选的预言 ｜川普必须赢得大选。 | 广角镜译制](https://youtu.be/Hmm8fORchlc)
-2. 英文原版 [Elections 2020 & The Destiny of America (Part 2)// Prophet Sadhu Sundar Selvaraj](https://youtu.be/INs-mVQUCD0)
-3. [川普是时空穿越者？！时间线战争，大觉醒的真相，预言卡牌背后的秘密！这个瓜，不信有人能吃下去！【猪妹piggirl】](https://youtu.be/Q66GFQLA1CI)
-4. [川普是未来人，彭斯体内有双重人格！时间线已经改变！信息量海了，这次真的hold不住了！！【猪妹piggirl】](https://youtu.be/pNnWE8vi9m0)
-5. [奇门遁甲 | 活着！活着！活着才是硬道理！一个铜皮铁骨一身钢，另一个命比纸薄、鞋比天高；六星连珠阴极阳生才是世界的转折点！(20210108第77期)](https://youtu.be/8cegliubC-A)
-
-最重要的消息似乎都是 Simon Parkes 发布的（<https://www.simonparkes.org/>）。关于Trump背后的 Q 和 Anon，Simon Parkes 提供了一些震撼但是可靠的消息，即 Q 背后是四个人和一台量子计算机（quantum computer）：
-
-1. [Simon Parkes 12th January Update Current News](https://youtu.be/SkBefjl_fB8)
-2. [中文总结：赢定了！老川与军方早有合作！量子计算机预测未来！美联储即将废除！【猪妹piggirl】](https://youtu.be/eHx_no4HFSc)
-
-可以看得出来，目前猪妹的时事视频是以 Simon Parkes 的时事视频为主要内容，并配合她本人的总结和考证，非常有参考价值。有几个比较重要的总结视频是 Simon Parkes 的采访，里面总结了Trump的现状，未来事态的发展，对1月20日 inauguration 的预测，1月20日之后六周的情况，未来的新美国（Republic of America），几个重要人物的现状和未来。预计猪妹也会整理发布中文视频：
-
-1. 1/12/2021 [Simon Parkes Interview by Doug Billings from The Right Side](https://youtu.be/sR7UavM0E1U)
-2. 1/14/2021 [Interview with Simon Parkes & Charlie Ward](https://youtu.be/WKf32XRgWXc)
-
-Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发布的东西。据说 JFK 是为数不多没有被光明会控制的美国总统。他生前有许多未完成的计划，以扭转光明会对世界的控制，但是最终于1963年被刺杀。Simon Parkes 和 Charlie Ward 都有提到。以下是一些相关计划：
-
-1. NESARA / GESARA: The National / Global Economic Security & Reformation Act。该方案是为了让美国或世界金融系统回归金本位（gold standard）。与之相背的是1913年美联储（Federal Reserve System）的建立，背后是 Rothschild, Mogan, Rockefeller 等等家族对整个金融系统的控制。
-    1. 相关事件还有1912年的泰坦尼克号（Titanic）沉没事件。当时船上有反对建立美联储的几个超级富豪，最后全部在事件中丧生。
-
-关于美国本身的历史和法律问题还有一些疑惑，需要进一步研究：
-1. [The United States Isn't a Country — It's a Corporation!](https://www.serendipity.li/jsmill/us_corporation.htm)
-2. [Government vs. Corporations](http://landgrantpatent.org/government.html)
 
 ## 未来人（Men from the Future）
 

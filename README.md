@@ -21,10 +21,10 @@
     3. <https://www.bitchute.com/channel/NQVKHR8qbC3d/>
     4. <https://www.dropbox.com/sh/mvb8yjx2t3vj2fg/AABFOsbAyMxogeqaDHkxP9Y5a?dl=0>
 
-Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源。据说总共会有十七个部分（17 parts）。目前已经完成前6部分，大约2小时50分钟。在她的 [Bitchute 主页](https://www.bitchute.com/channel/ws4fMTn6yNc7/)里有她所有最近的纪录片。Bitchute 的好处是不会像 YouTube 那样审查敏感内容，但是缺点是没有字幕功能。除了她的主页，The Sequel 也可以在下面这些链接中观看：
+Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源，包括 *Rothschild* 家族和 *The Order of Jesuits*。据说总共会有十七个部分（17 parts）。目前已经完成前6部分，大约2小时50分钟。在她的 [Bitchute 主页](https://www.bitchute.com/channel/ws4fMTn6yNc7/)里有她所有最近的纪录片。Bitchute 的好处是不会像 YouTube 那样审查敏感内容，但是缺点是没有字幕功能。除了她的主页，The Sequel 也可以在下面这些链接中观看：
 
 1. English w/o subtitles: <https://www.bitchute.com/video/8fX63o0mRnSU/>
-2. English w/ YouTube auto subtiles:
+2. English w/ auto subtiles on YouTube:
     1. [THE SEQUEL TO THE FALL OF THE CABAL - Part 1 & 2](https://youtu.be/ABESvDCFEU8)
     2. [THE SEQUEL TO THE FALL OF THE CABAL - PART 3](https://youtu.be/UaihXXjVkuI)
     3. [THE SEQUEL TO THE FALL OF THE CABAL - PART 4](https://youtu.be/awqJ0UKvDIM)
@@ -35,6 +35,10 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 
 1. [新世界秩序的劇本, 光明卡, 多個預言, 準確無誤地"被"進行, 東京奧運有炸彈事件, 更預示了美國總統特朗普的結局?](https://youtu.be/IUclJtZavmc)
 
+光明会有自己的[主页](https://www.illuminatiofficial.org/)，是的，我也觉得很神奇。值得一提的是，如果 google Illuminati，并不能找到这个主页，但是如果 duckduckgo Illuminati，就可以找到。
+
+<!-- 除了光明会，最近看到另一个组织的名字叫 *Pilgrims Society*。目前还不清楚他们之间的关系。 -->
+
 ## COVID-19
 
 疫情有可能是光明会的一次有预谋的行动，是 The Anglo-Saxon Mission 的一部分。下面视频的作者提到这个计划背后很可能是外星人所为，而且包含了正反两面外星人的较量。反面外星人想控制人类，而正面外星人在帮助人类。请注意三点：1) 视频 15:00 以后提到“China will catch a cold.” 2) 视频发布于2010年，提到的会议发生在2005年，3) COVID-19 大规模爆发于2019年：
@@ -42,6 +46,17 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 1. English version: [EN - The Anglo-Saxon Mission [This version with English subtiltes]](https://youtu.be/TmWM51mTY_c)
 2. 中文版：[ZH-CN 盎格鲁•撒克逊计划](https://youtu.be/d86DRn7T098)
 3. 采访稿 [The Anglo-Saxon Mission: Witness Interview transcript](https://projectcamelot.org/lang/en/anglo_saxon_mission_interview_transcript_en.html)
+
+*Mel K* 和 *Dr Charlie Ward* 在一个视频开头的讨论里说到了一些关于 COVID 疫苗的事情。例如，
+
+1. COVID actually stands for *Certification of Vaccine Identification*. 疫苗里有 nano-particle。
+2. [疫苗的专利](https://patents.google.com/patent/US10130701B2/en)早在2019年前就有了（2012或2016年）。专利持有者（Pirbright Institute）归属于 Rothschild 家族。
+3. The Pentagon（美国国防部）知道疫苗有问题，所以用普通的 flu shot 代替了有问题的疫苗。
+
+Mel K 和 Dr Charlie Ward的视频：
+
+1. English w/ auto subtitles on YouTube: <https://youtu.be/W3Q5kCmmf4k>
+2. English w/o subtitles on Bitchute: <https://www.bitchute.com/video/mejRLRPSfpV1/>
 
 猪妹的会员视频里也有介绍，以下为不太重要的补充，说的是现在的检测方法会导致 false positive：
 

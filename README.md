@@ -58,7 +58,7 @@ Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对�
 1. English w/ auto subtitles on YouTube: <https://youtu.be/W3Q5kCmmf4k>
 2. English w/o subtitles on Bitchute: <https://www.bitchute.com/video/mejRLRPSfpV1/>
 
-猪妹的会员视频里也有介绍，以下为不太重要的补充，说的是现在的检测方法会导致 false positive：
+猪妹的会员视频里也有介绍目前使用的 PCR 检测方法会导致 false positive：
 
 1. [大忽悠PCR检测法，可口可乐也阳性了！白在家里憋了那么久，看到本影片的我眼泪流下来！](https://youtu.be/oa7BGyVD-EQ)
 

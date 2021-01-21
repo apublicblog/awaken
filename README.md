@@ -1,4 +1,4 @@
-# For Grand Awaken
+# For Grand Awakening
 
 ## 光明会 Illuminati
 

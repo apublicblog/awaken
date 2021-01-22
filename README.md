@@ -113,6 +113,7 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 3. Simon Parkes 推荐：
     1. *It Awaits Us*
     2. *THE PANDORA QUEST (IT AWAITS US Book 2)*
+4. 赛斯书，*The Individual and the Nature of Mass Events (A Seth Book)*，讲灵魂提升对事物的影响
 
 <!-- 5. The Biggest Secret: The book that will change the World by David Icke -->
 
@@ -141,8 +142,9 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 
 1. [秘密太空计划 人类正在面临重大转型 科里古德揭秘如何开天目和启动超能力 [脑洞乌托邦 | Mystery Stories TV]](https://youtu.be/TYKqjto13iQ)
 
-Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转型。当灵魂上升到五维空间，那些三维和四维空间的负面力量将不再起作用。这也是为什么负面力量在用尽一切方式扩大人的负面情绪，将灵魂禁锢在三维空间无法提升。视频在下面：
-1. [21ST JANUARY SECOND UPDATE](https://www.bitchute.com/video/5VzMP1Hxauit/)
+Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转型。当灵魂上升到五维空间，那些三维和四维空间的负面力量将不再起作用。这也是为什么负面力量在用尽一切方式扩大人的负面情绪，将灵魂禁锢在三维空间无法提升。另外很多人都提到频率（frequency）这个词，频率越高，灵魂的能量越大，越能够接近更高维度的空间。Simon Parkes 的视频在下面：
+
+1. English w/o subtitles: [21ST JANUARY SECOND UPDATE](https://www.bitchute.com/video/5VzMP1Hxauit/)
 
 ### 关于神 the God
 

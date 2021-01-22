@@ -87,15 +87,16 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 1. NESARA / GESARA: The National / Global Economic Security & Reformation Act。该方案是为了让美国或世界金融系统回归金本位（gold standard）。与之相背的是1913年美联储（Federal Reserve System）的建立，背后是 Rothschild, Mogan, Rockefeller 等等家族对整个金融系统的控制。
     1. 相关事件还有1912年的泰坦尼克号（Titanic）沉没事件。当时船上有反对建立美联储的几个超级富豪，最后全部在事件中丧生。
 
-关于美国本身的历史和法律问题，很多人（例如 Dr Charlie Ward）提到，美国宪法的精神在1871年时已经被修改。当时国会通过了 Act of 1871，把美国变成了一个公司 *THE UNITED STATES OF AMERICA*（全大写表示 corporation），公司的时效从1871年到2019年6月。从时间上来看，现在“美国”这个公司已经解散了，因此2020年的大选从某种程序上来说是没有意义的。这一个知识点有点难，我还没有完全理解。以下有一些文章讨论了 Act of 1871，有一集英文视频讲解了这个问题，猪妹也总结了一集中文视频：
+关于美国本身的历史和法律问题，很多人（例如 Dr Charlie Ward）提到，美国宪法的精神在1871年时已经被修改。当时国会通过了 Act of 1871，把美国变成了一个公司 *THE UNITED STATES OF AMERICA*（全大写表示 corporation），公司的时效从1871年到2019年6月。从时间上来看，现在“美国”这个公司已经解散了，因此2020年的大选从某种程序上来说是没有意义的。这一个知识点有点难，我还没有完全理解。以下有一些文章讨论了 Act of 1871，有英文视频，猪妹也有一集中文视频：
 
 1. [The United States Isn't a Country — It's a Corporation!](https://www.serendipity.li/jsmill/us_corporation.htm)
 2. [Government vs. Corporations](http://landgrantpatent.org/government.html)
 3. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 1](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is.html)
 4. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 2](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is_15.html)
 5. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 3](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is_5.html)
-6. English YouTube video: [💰The Banking Act 1871 - Expired 🚮🗑](https://youtu.be/hW5bW6lo-n0)
-7. 中文视频：[21号进去那个一定不合法！川普是最后一任总统！！美国实际有2部宪法？【猪妹piggirl】](https://youtu.be/yipKZ59wEB4)
+6. English YouTube video: [The Act of 1871 Fully Exposed The United States](https://youtu.be/w4Z-zu_S2-s)
+7. English YouTube video: [💰The Banking Act 1871 - Expired 🚮🗑](https://youtu.be/hW5bW6lo-n0)
+8. 中文视频：[21号进去那个一定不合法！川普是最后一任总统！！美国实际有2部宪法？【猪妹piggirl】](https://youtu.be/yipKZ59wEB4)
 
 ## 外星人（Extraterrestrial, Interdimensional）
 
@@ -139,6 +140,9 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 同时有一些正面的高级外星人也在帮助人类，希望把人类往正面的能量上引导。所以会有像 Simon Parkes 这样的人，也有其他一些人通过 channel 的形式在传递信息。有的外星人为了让宇宙往正面的方向发展，灵魂来到地球，寄宿在人类的肉体里，但是这个过程可能使他们失忆，也就忘记了自己的使命。这里有一个关于蓝鸟人的视频，是一个大概的描述，也有提到大觉醒的时代已经到来：
 
 1. [秘密太空计划 人类正在面临重大转型 科里古德揭秘如何开天目和启动超能力 [脑洞乌托邦 | Mystery Stories TV]](https://youtu.be/TYKqjto13iQ)
+
+Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转型。当灵魂上升到五维空间，那些三维和四维空间的负面力量将不再起作用。这也是为什么负面力量在用尽一切方式扩大人的负面情绪，将灵魂禁锢在三维空间无法提升。视频在下面：
+1. [21ST JANUARY SECOND UPDATE](https://www.bitchute.com/video/5VzMP1Hxauit/)
 
 ### 关于神 the God
 

@@ -98,9 +98,10 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 3. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 1](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is.html)
 4. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 2](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is_15.html)
 5. [Misinformation About the Act of 1871 is an Ongoing Problem -- Part 3](http://www.paulstramer.net/2021/01/misinformation-about-act-of-1871-is_5.html)
-6. English YouTube video: [The Act of 1871 Fully Exposed The United States](https://youtu.be/w4Z-zu_S2-s)
-7. English YouTube video: [💰The Banking Act 1871 - Expired 🚮🗑](https://youtu.be/hW5bW6lo-n0)
-8. 中文视频：[21号进去那个一定不合法！川普是最后一任总统！！美国实际有2部宪法？【猪妹piggirl】](https://youtu.be/yipKZ59wEB4)
+6. [TRUMP ODE TO THE CORPORATION!](https://themarshallreport.wordpress.com/2021/01/20/trump-ode-to-the-corporation/)
+7. English YouTube video: [The Act of 1871 Fully Exposed The United States](https://youtu.be/w4Z-zu_S2-s)
+8. English YouTube video: [💰The Banking Act 1871 - Expired 🚮🗑](https://youtu.be/hW5bW6lo-n0)
+9. 中文视频：[21号进去那个一定不合法！川普是最后一任总统！！美国实际有2部宪法？【猪妹piggirl】](https://youtu.be/yipKZ59wEB4)
 
 ## 外星人（Extraterrestrial, Interdimensional）
 

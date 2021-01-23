@@ -138,9 +138,10 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 13. Zeta Reticulians, Grey 灰人, 泽塔双星人, 网罟座ζ
 14. Zulus
 
-其中 Reptilians 是代表邪恶的高级外星人（evil），他们奴役人类，很可能是光明会背后的控制者。猜想是光明会接受 Reptilians 的能力，或是很多政要和达官贵人本身就是 Reptilians 的灵魂或宿体。他们为了奴役人类，会散播恐惧和抑郁能量，不让人类发现自己灵魂的真正力量。小灰人 Grey （[Roswell UFO Incident](https://en.wikipedia.org/wiki/Roswell_UFO_incident)）可能是他们的手下，因为过度改造身体而无法繁衍。猪妹有过一期相关视频：
+其中 Reptilians 是代表邪恶的高级外星人（evil），他们奴役人类，很可能是光明会背后的控制者。猜想是光明会接受 Reptilians 的能力，或是很多政要和达官贵人本身就是 Reptilians 的灵魂或宿体。他们为了奴役人类，会散播恐惧和抑郁能量，不让人类发现自己灵魂的真正力量。小灰人 Grey （[Roswell UFO Incident](https://en.wikipedia.org/wiki/Roswell_UFO_incident)）可能是他们的手下，因为过度改造身体而无法繁衍。猪妹和離譜太太有过做过相关视频：
 
 1. [地球只是培养皿！谁在吸食人类的抑郁能量？海奥华预言和圣经的冲突。](https://youtu.be/Q-M__yS90PM)
+2. [真的有蜥蜴人嗎？Lizard Men? 大覺醒 2 The Great Awakening?](https://youtu.be/T30waGFG_GI)
 
 同时有一些正面的高级外星人也在帮助人类，希望把人类往正面的能量上引导。所以会有像 Simon Parkes 这样的人，也有其他一些人通过 channel 的形式在传递信息。有的外星人为了让宇宙往正面的方向发展，灵魂来到地球，寄宿在人类的肉体里，但是这个过程可能使他们失忆，也就忘记了自己的使命。这里有一个关于蓝鸟人的视频，是一个大概的描述，也有提到大觉醒的时代已经到来：
 

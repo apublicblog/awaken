@@ -77,10 +77,14 @@ Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对�
 1. [Simon Parkes 12th January Update Current News](https://youtu.be/SkBefjl_fB8)
 2. [中文总结：赢定了！老川与军方早有合作！量子计算机预测未来！美联储即将废除！【猪妹piggirl】](https://youtu.be/eHx_no4HFSc)
 
-可以看得出来，目前猪妹的时事视频是以 Simon Parkes 和 Robert David Steele 的时事视频为主要内容，并配合她本人的总结和考证，非常有参考价值。有几个比较重要的总结视频是 Simon Parkes 的采访，里面总结了Trump的现状，未来事态的发展，对1月20日 inauguration 的预测，1月20日之后六周的情况，未来的新美国（Republic of America），几个重要人物的现状和未来。预计猪妹也会整理发布中文视频：
+可以看得出来，目前猪妹的时事视频是以 Simon Parkes 和 Charlie Ward 的时事视频为主要内容，并配合她本人的总结和考证，非常有参考价值。有几个比较重要的总结视频是 Simon Parkes 的采访，里面总结了Trump的现状，未来事态的发展，对1月20日 inauguration 的预测，1月20日之后六周的情况，未来的新美国（Republic of America），几个重要人物的现状和未来。预计猪妹也会整理发布中文视频：
 
 1. 1/12/2021 [Simon Parkes Interview by Doug Billings from The Right Side](https://youtu.be/sR7UavM0E1U)
 2. 1/14/2021 [Interview with Simon Parkes & Charlie Ward](https://youtu.be/WKf32XRgWXc)
+
+1月20日的就职典礼之后，Simon Parkes 说的大抓捕并没有来。他在自己的视频中说，“Something went wrong.” 现在美国的情况是有两个政府，一个是 Biden 主持的表面政府，另一个是军方主持的实权政府。正义的一方在进行第二个计划，一切还没结束，很可能要持续到4月。
+
+1. 1/21/2021 [21ST JANUARY UPDATE CURRENT NEWS](https://www.bitchute.com/video/hiNftb3fJYzp/)
 
 Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发布的东西。据说 JFK 是为数不多没有被光明会控制的美国总统。他生前有许多未完成的计划，以扭转光明会对世界的控制，但是最终于1963年被刺杀。Simon Parkes 和 Charlie Ward 都有提到。以下是一些相关计划：
 

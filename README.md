@@ -78,6 +78,8 @@ Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对�
 
 1. [大忽悠PCR检测法，可口可乐也阳性了！白在家里憋了那么久，看到本影片的我眼泪流下来！](https://youtu.be/oa7BGyVD-EQ)
 
+“The virus cannot kill you, but fear can.”
+
 ## Donald J. Trump
 
 有很多关于Trump的预言和解读。虽然在2021年1月20日之前什么事情都有可能发生，但是个人感觉目前 Trump 已经度过了最艰难的阶段：

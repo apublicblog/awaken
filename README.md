@@ -27,7 +27,7 @@
     3. <https://www.bitchute.com/channel/NQVKHR8qbC3d/>
     4. <https://www.dropbox.com/sh/mvb8yjx2t3vj2fg/AABFOsbAyMxogeqaDHkxP9Y5a?dl=0>
 
-Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源，包括 *Rothschild* 家族和 *The Order of Jesuits*。据说总共会有十七个部分（17 parts）。目前已经完成前6部分，大约2小时50分钟。在她的 [Bitchute 主页](https://www.bitchute.com/channel/ws4fMTn6yNc7/)里有她所有最近的纪录片。Bitchute 的好处是不会像 YouTube 那样审查敏感内容，但是缺点是没有字幕功能。除了她的主页，The Sequel 也可以在下面这些链接中观看：
+Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源，包括 *Rothschild* 家族和 *The Order of Jesuits*。据说总共会有十七个部分（17 parts）。目前已经完成前6部分，大约2小时50分钟。在她的 [Bitchute 主页](https://www.bitchute.com/channel/ws4fMTn6yNc7/)里有她所有最近的纪录片。Bitchute 的好处是不会像 YouTube 那样审查和删除敏感内容，但是缺点是没有字幕功能。除了她的主页，The Sequel 也可以在下面这些链接中观看：
 
 1. English w/o subtitles: <https://www.bitchute.com/video/8fX63o0mRnSU/>
 2. English w/ auto subtiles on YouTube:
@@ -69,10 +69,14 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 2. [疫苗的专利](https://patents.google.com/patent/US10130701B2/en)早在2019年前就有了（2012或2016年）。专利持有者（Pirbright Institute）归属于 Rothschild 家族。
 3. The Pentagon（美国国防部）知道疫苗有问题，所以用普通的 flu shot 代替了有问题的疫苗。
 
-Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对大选情况的分析（到1/18/2021）：
+Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对大选情况的分析：
 
-1. English w/ auto subtitles on YouTube: <https://youtu.be/W3Q5kCmmf4k>
-2. English w/o subtitles on Bitchute: <https://www.bitchute.com/video/mejRLRPSfpV1/>
+1. 1/18/2021，注意3:55之后对于COVID的讨论：
+    1. English w/ auto subtitles on YouTube: <https://youtu.be/W3Q5kCmmf4k>
+    2. English w/o subtitles on Bitchute: <https://www.bitchute.com/video/mejRLRPSfpV1/>
+2. 1/25/2021，注意43:08之后对于疫苗的讨论：
+    1. English w/ auto subtitles on YouTube: [MEL K & CHARLIE WARD THE WEEKLY CATCH UP WITH 01-25-2021](https://youtu.be/dGMIkEulbrE)
+    2. English w/o subtitles on Bitchute: [THE WEEKLY CATCH UP WITH MEL K & CHARLIE WARD](https://www.bitchute.com/video/OoQ8rlHBvZs/)
 
 猪妹的会员视频里也有介绍目前使用的 PCR 检测方法会导致 false positive。现在主流媒体也开始报道说 WHO 确认了 PCR 检测带来的假阳性问题。以下是猪妹介绍 PCR 的视频：
 

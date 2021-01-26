@@ -27,15 +27,16 @@
     3. <https://www.bitchute.com/channel/NQVKHR8qbC3d/>
     4. <https://www.dropbox.com/sh/mvb8yjx2t3vj2fg/AABFOsbAyMxogeqaDHkxP9Y5a?dl=0>
 
-Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源，包括 *Rothschild* 家族和 *The Order of Jesuits*。据说总共会有十七个部分（17 parts）。目前已经完成前6部分，大约2小时50分钟。在她的 [Bitchute 主页](https://www.bitchute.com/channel/ws4fMTn6yNc7/)里有她所有最近的纪录片。Bitchute 的好处是不会像 YouTube 那样审查和删除敏感内容，但是缺点是没有字幕功能。除了她的主页，The Sequel 也可以在下面这些链接中观看：
+Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 Fall of the Cabal 的后续，主要讲述光明会的起源，包括 *Rothschild* 家族和 *The Order of Jesuits*。据说总共会有十七个部分（17 parts）。目前已经完成前7部分。在她的 [Bitchute 主页](https://www.bitchute.com/channel/ws4fMTn6yNc7/)里有她所有最近的纪录片。Bitchute 的好处是不会像 YouTube 那样审查和删除敏感内容，但是缺点是没有字幕功能。除了她的主页，The Sequel 也可以在下面这些链接中观看：
 
-1. English w/o subtitles: <https://www.bitchute.com/video/8fX63o0mRnSU/>
+1. 1-6 parts, English w/o subtitles: <https://www.bitchute.com/video/8fX63o0mRnSU/>
 2. English w/ auto subtiles on YouTube:
     1. [THE SEQUEL TO THE FALL OF THE CABAL - Part 1 & 2](https://youtu.be/ABESvDCFEU8)
     2. [THE SEQUEL TO THE FALL OF THE CABAL - PART 3](https://youtu.be/UaihXXjVkuI)
     3. [THE SEQUEL TO THE FALL OF THE CABAL - PART 4](https://youtu.be/awqJ0UKvDIM)
     4. [THE SEQUEL TO THE FALL OF THE CABAL - PART 5](https://youtu.be/Oq-6ARQspBo)
     5. [THE SEQUEL TO THE FALL OF THE CABAL - PART 6](https://youtu.be/tBG70gIaB9s)
+    6. [THE SEQUEL TO THE FALL OF THE CABAL - PART 7](https://youtu.be/BiupXihJLL8)
 
 我个人还推荐猪妹的视频（Member Only，目前只有她的频道会员可见）：
 

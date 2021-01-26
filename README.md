@@ -2,16 +2,18 @@
 
 ## 光明会 Illuminati
 
-猪妹的视频（Member Only，目前只有她的频道会员可见）：
+普遍认为光明会是一小撮人（甚至某些情况下已经不是真正的“人”），他们的目前是推行*世界新秩序（New World Order）*，获得至高权力，控制世界财富，奴役所有人类。他们在全世界制造战争和瘟疫，散布恐惧，扶植代理人。世界新秩序是一个反乌托邦（dystopia）社会，主要通过几种手段实现：
 
-1. [揭秘 | 光明会，共济会是如何控制这个世界的](https://youtu.be/XNFS5deTgiQ)
-2. [猪妹 | 揭秘光明会，苹果电脑送修引发的惊天秘密，“Q” 觉醒运动是阴谋论吗？奥巴马火星基地！君士坦丁撒旦教崇拜修改圣诞节！](https://youtu.be/xseWSZiHKj4)
+1. 削减世界人口
+2. 推行全球化
+3. 建立全球政府
+4. 建立大政府剥夺民众自由
+5. 挑起战争，并在双方都扶植代理人
+6. 控制媒体和教育
 
-猪妹的公开视频：
+<img src="figures/illuminati.jpg" alt="illuminati" width="300"/>
 
-1. [深度解析｜共济会乔治亚石碑的真正秘密，后圣经时代预言！阿努纳奇尼比鲁星球回归，磁极移动末日到来！大洪水史前历史，石碑新十诫是阴谋还是救赎？](https://youtu.be/JTGsDmOmSoU)
-
-荷兰人 *Janet Ossebaard* 拍摄的纪录片 *Fall of the Cabal*，总共有十个部分（10 parts），大约3小时，主要讲述光明会对世界的控制，以及背后隐藏的关于儿童贩卖（child trafficking），恋童癖（pedophilia），肾上腺素红（adrenochrome）等等邪恶事物。这部纪念片可以在以下链接中观看:
+现在有越来越多的资料和视频都有介绍光明会，揭露真相。其中最有名的是荷兰人 *Janet Ossebaard* 拍摄的纪录片 *Fall of the Cabal*，总共有十个部分（10 parts），大约3小时，主要讲述光明会对世界的控制，以及背后隐藏的关于儿童贩卖（child trafficking），恋童癖（pedophilia），肾上腺素红（adrenochrome）等等邪恶事物。这部纪念片可以在以下链接中观看:
 
 1. Janet Ossebaard's channel on Bitchute: <https://www.bitchute.com/channel/ws4fMTn6yNc7/>
 2. English w/o subtitles: <https://www.bitchute.com/video/MYHTpUW9KAXQ/>
@@ -30,6 +32,15 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
     3. [THE SEQUEL TO THE FALL OF THE CABAL - PART 4](https://youtu.be/awqJ0UKvDIM)
     4. [THE SEQUEL TO THE FALL OF THE CABAL - PART 5](https://youtu.be/Oq-6ARQspBo)
     5. [THE SEQUEL TO THE FALL OF THE CABAL - PART 6](https://youtu.be/tBG70gIaB9s)
+
+我个人还推荐猪妹的视频（Member Only，目前只有她的频道会员可见）：
+
+1. [揭秘 | 光明会，共济会是如何控制这个世界的](https://youtu.be/XNFS5deTgiQ)
+2. [猪妹 | 揭秘光明会，苹果电脑送修引发的惊天秘密，“Q” 觉醒运动是阴谋论吗？奥巴马火星基地！君士坦丁撒旦教崇拜修改圣诞节！](https://youtu.be/xseWSZiHKj4)
+
+猪妹的公开视频：
+
+1. [深度解析｜共济会乔治亚石碑的真正秘密，后圣经时代预言！阿努纳奇尼比鲁星球回归，磁极移动末日到来！大洪水史前历史，石碑新十诫是阴谋还是救赎？](https://youtu.be/JTGsDmOmSoU)
 
 有一套著名的光明会卡片游戏 *Illuminati: New World Order (INWO)*，是1994年出版的一副卡牌游戏（collectible card game）。卡牌上的许多插图和事件，后来成为了在现实世界中真实发生的事件，比如最著名的911事件（发生于2001年）。普遍认为 INWO 就是光明会的真实计划。为何计划会以卡牌的形式流出？简单的猜测是卡牌作者 Steve Jackson 是一个 hacker，计划是他窃取到的。复杂的猜测是光明会想让大众知道自己的强大，散布恐惧，从而引导人类的负面情绪。以下是一个非常简短的卡牌介绍：
 

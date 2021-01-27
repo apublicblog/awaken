@@ -67,7 +67,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 *Mel K* 和 *Dr Charlie Ward* 在一个视频开头的讨论里说到了一些关于 COVID 疫苗的事情。例如，
 
 1. COVID actually stands for *Certification of Vaccine Identification*. 疫苗里有 nano-particle。
-2. [疫苗的专利](https://patents.google.com/patent/US10130701B2/en)早在2019年前就有了（2012或2016年）。专利持有者（Pirbright Institute）归属于 Rothschild 家族。
+2. [疫苗的专利](https://patents.google.com/patent/US10130701B2/en)（[PDF](docs/US10130701.pdf)）早在2019年前就有了（2012或2016年）。专利持有者（Pirbright Institute）归属于 Rothschild 家族。
 3. The Pentagon（美国国防部）知道疫苗有问题，所以用普通的 flu shot 代替了有问题的疫苗。
 
 Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对大选情况的分析：
@@ -224,6 +224,7 @@ Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转�
 ## Watch Later
 
 * [DR. FAUCI EXPOSED! | PLANDEMIC PART 1 [FEAT. DR. JUDY MIKOVITS]](https://www.bitchute.com/video/fpaXWVFTOjTA/)
+* [TREASON, COVERUP, VACCINATIONS, GLORY, FAME & MONEY - PLAGUE OF CORRUPTION](https://www.bitchute.com/video/9ZA4Ocwm31bw/)
 * [Celebrity Cloning Centers, Reptilians & The Great Awakening](https://youtu.be/1TAfGFBjRcU)
 * [CATHERINE AUSTIN FITTS | FULL INTERVIEW | PLANET LOCKDOWN](https://www.bitchute.com/video/fyHMpQKQ7YE9/)
 * [Georgia Guidestones and Depopulation Agenda](https://youtu.be/FgP0Khlh6rs)

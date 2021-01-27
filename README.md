@@ -235,7 +235,6 @@ Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转�
 
 ## Watch Later
 
-* [DR. FAUCI EXPOSED! | PLANDEMIC PART 1 [FEAT. DR. JUDY MIKOVITS]](https://www.bitchute.com/video/fpaXWVFTOjTA/)
 * [TREASON, COVERUP, VACCINATIONS, GLORY, FAME & MONEY - PLAGUE OF CORRUPTION](https://www.bitchute.com/video/9ZA4Ocwm31bw/)
 * [Celebrity Cloning Centers, Reptilians & The Great Awakening](https://youtu.be/1TAfGFBjRcU)
 * [CATHERINE AUSTIN FITTS | FULL INTERVIEW | PLANET LOCKDOWN](https://www.bitchute.com/video/fyHMpQKQ7YE9/)

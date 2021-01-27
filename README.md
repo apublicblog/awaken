@@ -114,7 +114,7 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 1. NESARA / GESARA: The National / Global Economic Security & Reformation Act。该方案是为了让美国或世界金融系统回归金本位（gold standard）。与之相背的是1913年美联储（Federal Reserve System）的建立，背后是 Rothschild, Mogan, Rockefeller 等等家族对整个金融系统的控制。
     1. 相关事件还有1912年的泰坦尼克号（Titanic）沉没事件。当时船上有反对建立美联储的几个超级富豪，最后全部在事件中丧生。
 
-关于美国本身的历史和法律问题，很多人（例如 Dr Charlie Ward）提到，美国宪法的精神在1871年时已经被修改。当时国会通过了 Act of 1871，把美国变成了一个公司 *THE UNITED STATES OF AMERICA*（全大写表示 corporation），公司的时效从1871年到2019年6月。从时间上来看，现在“美国”这个公司已经解散了，因此2020年的大选从某种程序上来说是没有意义的。这一个知识点有点难，我还没有完全理解。特别是对于美国公司解散的确切时间，我找不到相关的佐证，只是听到大家都说美国公司已经解散了（dissolved）。以下有一些文章讨论了 Act of 1871，有英文视频，猪妹也有总结的中文视频：
+关于美国本身的历史和法律问题，很多人（例如 Dr Charlie Ward）提到，美国宪法的精神在1871年时已经被修改。当时国会通过了 Act of 1871，把美国变成了一个公司 *THE UNITED STATES OF AMERICA*（全大写表示 corporation），公司的时效从1871年到2019年6月。从时间上来看，现在“美国”这个公司已经解散了，因此2020年的大选从某种程序上来说是没有意义的。这一个知识点有点难，我还没有完全理解。特别是对于美国公司解散的确切时间，我找不到相关的佐证，只是听到大家都说美国公司已经解散了（dissolved）。以下有一些文章讨论了 Act of 1871，有英文视频，也有猪妹和小明各自总结的中文视频：
 
 1. [The United States Isn't a Country — It's a Corporation!](https://www.serendipity.li/jsmill/us_corporation.htm)
 2. [Government vs. Corporations](http://landgrantpatent.org/government.html)
@@ -126,6 +126,7 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 8. English YouTube video: [💰The Banking Act 1871 - Expired 🚮🗑](https://youtu.be/hW5bW6lo-n0)
 9. 中文视频：[21号进去那个一定不合法！川普是最后一任总统！！美国实际有2部宪法？【猪妹piggirl】](https://youtu.be/yipKZ59wEB4)
 10. 中文视频：[华盛顿特区被老川扣押了！白宫熄灯，方尖碑都不亮了！老拜还能续命几天？美国破产最详尽解读！](https://odysee.com/@piggirl:c/9f77c34091a7448-1:9)
+11. 中文视频：[緊急播報|美國真的破產了！聯邦法庭文件和白宮文件解密！](https://youtu.be/1_NXi0J2kg0)
 
 ## 外星人（Extraterrestrial, Interdimensional）
 

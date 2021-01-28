@@ -142,11 +142,16 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 
 ## 外星人（Extraterrestrial, Interdimensional）
 
-*Simon Parkes* 是一个外星人专家（hmm，不知道这么说准不准确）。他自称自己的灵魂有1/3的 Mantis，1/3的 Reptilian，和1/3的人类，自己的 Mentor 是一个 Mantis。他的消息来源非常独特，是现在时事发展的主要透露者，有来自核心圈的直接消息源。他在 The Project Avalon 的采访中介绍了很多外星人种，也谈到了自己：
+*Simon Parkes* 是一个外星人专家（hmm，不知道这么说准不准确）。他出现在记录片 *Confessions of an Alien Abductee* 中。他在片中介绍了自己从小被外星人“绑架”的经历，以及与外星人建立的情感链接。以下是记录片的节选片段，带中文字幕：
+
+1. [SIMON PARKES LOVES ALIENS AND DONALD TRUMP](https://youtu.be/VFgTp8ivlaI)
+
+Simon Parkes 自称自己的灵魂有1/3的 Mantis，1/3的 Reptilian，和1/3的人类，自己的 Mentor 是一个 Mantis。他在 The Project Avalon 的采访中介绍了很多外星人种，也谈到了自己。以下是采访视频链接：
 
 1. Spainish 字幕版，但是可以开启 YouTube 自动英语字幕 [SIMON PARKES - Interview par Project Avalon (2014) VOFR (English Auto Subtitles by YouTube)](https://youtu.be/FjllCFPRXnY)
 2. 英文原版，但是没有字幕 [SIMON PARKES: The Project Avalon Interview (English version but w/o subtitles)](https://youtu.be/w6dxXAAAIp4)
-3. Simon Parkes 主页，包含他的 blogs 作为主要的消息发布渠道。如果想获得最新的大选消息，就请刷他的 blogs 吧 <https://www.simonparkes.org/>
+
+Simon Parkes 主页，包含他的 blogs 作为主要的消息发布渠道。他的消息来源非常独特，是现在美国大选时事消息的主要透露者，有来自核心圈的直接消息源。如果想获得最新的大选消息，就请刷他的 blogs 吧 <https://www.simonparkes.org/>
 
 有一些书籍介绍了相关的外星人经历，其中的《海奥华预言》和《一的法则》经常被中文 YouTuber 提到：
 
@@ -240,3 +245,13 @@ Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转�
 * [CATHERINE AUSTIN FITTS | FULL INTERVIEW | PLANET LOCKDOWN](https://www.bitchute.com/video/fyHMpQKQ7YE9/)
 * [Georgia Guidestones and Depopulation Agenda](https://youtu.be/FgP0Khlh6rs)
 * [The TRUTH about Bill Gates | 4-Part Documentary](https://youtu.be/lK-R7DoJJcA)
+* [Contactee Simon Parkes Part 1](https://youtu.be/QzQTqGOlcWc)
+* [Alien Abductee Simon Parkes Part 2](https://youtu.be/ktoniDee4qs)
+* [Alien Abductee Simon Parkes Part 3](https://youtu.be/JmQ_EdOUED0)
+* [Alien Abductee Simon Parkes Part 4](https://youtu.be/wfMKUE_CreY)
+* [SIMON PARKES : CHANGING THE WORLD - PART ONE](https://youtu.be/aji0fHM3jIc)
+* [SIMON PARKES : CHANGING THE FUTURE - PART TWO](https://youtu.be/GBtxfhX_iNc)
+* [JiNN and SHADOW Beings Simon Parkes New Horizons 2014](https://youtu.be/y2QPhsSiS60)
+* [Born to an illuminati family [Simon Parkes] Lifting the veil conference Leeds 2013](https://youtu.be/AL1xS5ZsjOw)
+* [Simon Parkes 29 11 2015 Part 1](https://youtu.be/x8WDYYH6xUg)
+* [Simon Parkes 29 11 2015 Part 2](https://youtu.be/HYA5klK8-38)

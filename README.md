@@ -69,7 +69,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 2. 中文版：[ZH-CN 盎格鲁•撒克逊计划](https://youtu.be/d86DRn7T098)
 3. 采访稿 [The Anglo-Saxon Mission: Witness Interview transcript](https://projectcamelot.org/lang/en/anglo_saxon_mission_interview_transcript_en.html)
 
-有一个纪录片系列 *Plandemic Documentary Series*，揭露 COVID-19 背后的腐败和利害关系。它包括两个部分。第一部分的采访对象是 *Dr. Judy Mikovits*。她揭露了 *Anthony Fauci (福奇)* 在研究 HIV 时窃取研究成果，打压同行，利用专利谋取暴利等等恶行。同时揭露了医院被鼓励多报感染人数和死亡人数以制造恐慌，以及现在 CDC 推行的错误防疫政策，包括让健康人戴口罩，强制封锁，隔绝人群接触等等。她指出*硫酸羟氯喹 (hydroxychloroquine)* 被许多医生在临床上证明有很好的治疗效果，但是却被打压，原因是这种药并不是专利药，没有人能从中获利。制药公司和他们的行政代理人只会推行专利药和疫苗，打压普通药和普通普疗法，从中牟取暴利和名誉，而不顾普通人死活。而那些疫苗本身就存在问题，例如流感疫苗会使得 COVID-19 感染率上升36%。以下是视频链接：
+有一个纪录片系列 *Plandemic Documentary Series*，揭露 COVID-19 背后的腐败和利害关系。它包括两个部分。第一部分的采访对象是 *Dr. Judy Mikovits*。她揭露了 *Anthony Fauci (福奇)* 在研究 HIV 时窃取研究成果，打压同行，利用专利谋取暴利等等恶行。同时揭露了医院被鼓励多报感染人数和死亡人数以制造恐慌，以及现在 CDC 推行的错误防疫政策，包括让健康人戴口罩，强制封锁，隔绝人群接触等等。她指出*硫酸羟氯喹 (hydroxychloroquine, HCQ)* 加上锌（zinc）的处方被许多医生在临床上证明有很好的治疗效果，但是却被打压，原因是这种药并不是专利药，没有人能从中获利。制药公司和他们的行政代理人只会推行专利药和疫苗，打压普通药和普通普疗法，从中牟取暴利和名誉，而不顾普通人死活。而那些疫苗本身就存在问题，例如流感疫苗会使得 COVID-19 感染率上升36%。以下是视频链接：
 
 1. [PLANDEMIC PART 1 (OFFICIAL RE-RELEASE)](https://www.bitchute.com/video/JtPTJmnIWDq0/)
 2. 备用链接：[DR. FAUCI EXPOSED! | PLANDEMIC PART 1 [FEAT. DR. JUDY MIKOVITS]](https://www.bitchute.com/video/fpaXWVFTOjTA/)
@@ -80,6 +80,9 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 
 1. English version w/ subtitles: [ENGLISH SUBTITLES | PLANDEMIC 2 INDOCTORNATION](https://www.bitchute.com/video/nHRz9BAivNDZ/)
 2. Chinese subtitles: [中文字幕 (CHINESE SUBTITLES) | PLANDEMIC 2 INDOCTORNATION](https://www.bitchute.com/video/i423fjgWGBfT/)
+
+*America’s Frontline Doctors (AFLDS)* 是一个一直在推荐使用 HCQ 治疗 COVID-19 的医生组织。他们的主页上有很多相关视频：
+1. <https://www.americasfrontlinedoctors.com/media/video/>
 
 *Mel K* 和 *Dr Charlie Ward* 在一个视频开头的讨论里说到了一些关于 COVID 疫苗的事情。例如，
 

@@ -202,6 +202,10 @@ Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转�
 
 1. English w/o subtitles: [21ST JANUARY SECOND UPDATE](https://www.bitchute.com/video/5VzMP1Hxauit/)
 
+猪妹建立了一个关于冥想和能量提升的网站，里面有很多冥想指导和音乐，还有很多书籍资料：
+
+1. [大觉醒](https://awakeningera.org)
+
 *Lorie Ladd* 是一个提升导师（ascension teacher），在她的主页免费 sign up 后可以得到一个指导冥想的音频文件，大约四十分钟。以下是她的主页：
 
 1. LORIE LADD: <https://lorieladd.com/about>
@@ -263,3 +267,7 @@ Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转�
 * [Born to an illuminati family [Simon Parkes] Lifting the veil conference Leeds 2013](https://youtu.be/AL1xS5ZsjOw)
 * [Simon Parkes 29 11 2015 Part 1](https://youtu.be/x8WDYYH6xUg)
 * [Simon Parkes 29 11 2015 Part 2](https://youtu.be/HYA5klK8-38)
+* [深扒美國公司內幕，各種猛料，真相驚爲天人，美國一切都是謊言（上）](https://youtu.be/SGzJxmAh_Z8)
+* [深挖美國公司內幕，美國真實歷史和法律真相！都是陰謀！掙錢比共產黨都輕鬆（中）](https://youtu.be/dm7RLCXniSM)
+* [深挖美國公司內幕！收稅竟然違法？法官其實是銀行職員？（下）](https://youtu.be/Nsbj6AEQibM)
+* [Books by David Icke](https://shop.davidicke.com/us/)

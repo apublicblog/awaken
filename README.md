@@ -37,6 +37,7 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
     4. [THE SEQUEL TO THE FALL OF THE CABAL - PART 5](https://youtu.be/Oq-6ARQspBo)
     5. [THE SEQUEL TO THE FALL OF THE CABAL - PART 6](https://youtu.be/tBG70gIaB9s)
     6. [THE SEQUEL TO THE FALL OF THE CABAL - PART 7](https://youtu.be/BiupXihJLL8)
+3. 这两部纪念片的中文版也可以在猪妹的网站上观看：<https://dajuexing.org/qmovie/>
 
 *共济会（Freemasonry or Masonry）* 和光明会的关系非常紧密。虽然不知道具体细节，但是一般认为共济会的最顶层就是光明会。他们虽然名字不一样，但是所对应的邪恶势力是一样的。上文提到的纪录片确实有点长，而这里有一个简短的视频介绍了我们现在这个世界所处的状态：
 

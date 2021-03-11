@@ -100,6 +100,9 @@ Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对�
     1. English w/ auto subtitles on YouTube: [MEL K & CHARLIE WARD THE WEEKLY CATCH UP WITH 01-25-2021](https://youtu.be/dGMIkEulbrE)
     2. English w/o subtitles on Bitchute: [THE WEEKLY CATCH UP WITH MEL K & CHARLIE WARD](https://www.bitchute.com/video/OoQ8rlHBvZs/)
 
+小明出了一集视频专门揭露疫苗的问题：
+1. [打針是很安全的, 甚至隨時見上帝。 醫藥公司背後根本沒有陰謀！（驚天猛料）](https://youtu.be/VaghIPO5Pz8)
+
 猪妹的会员视频里也有介绍目前使用的 PCR 检测方法会导致 false positive。现在主流媒体也开始报道说 WHO 确认了 PCR 检测带来的假阳性问题。以下是猪妹介绍 PCR 的视频：
 
 1. [大忽悠PCR检测法，可口可乐也阳性了！白在家里憋了那么久，看到本影片的我眼泪流下来！](https://youtu.be/oa7BGyVD-EQ)

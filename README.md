@@ -174,7 +174,7 @@ Simon Parkes 主页，包含他的 blogs 作为主要的消息发布渠道。他
 3. Simon Parkes 推荐：
     1. *It Awaits Us*
     2. *THE PANDORA QUEST (IT AWAITS US Book 2)*
-4. 赛斯书，*The Individual and the Nature of Mass Events (A Seth Book)*，讲灵魂提升对事物的影响
+4. 赛斯书（<https://en.wikipedia.org/wiki/Seth_Material>），*The Individual and the Nature of Mass Events (A Seth Book)*，讲灵魂提升对事物的影响
 
 <!-- 5. The Biggest Secret: The book that will change the World by David Icke -->
 
@@ -258,6 +258,7 @@ Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转�
 
 ## Watch Later
 
+* [灵性（Psyche）系列 by US WESTLAND 美西地产](https://youtube.com/playlist?list=PLRKBcgWf1PV6UA5Ql6UJPShAFJUGl5U6n)，感觉这位老哥精读了塞斯书，很强
 * [TREASON, COVERUP, VACCINATIONS, GLORY, FAME & MONEY - PLAGUE OF CORRUPTION](https://www.bitchute.com/video/9ZA4Ocwm31bw/)
 * [Celebrity Cloning Centers, Reptilians & The Great Awakening](https://youtu.be/1TAfGFBjRcU)
 * [CATHERINE AUSTIN FITTS | FULL INTERVIEW | PLANET LOCKDOWN](https://www.bitchute.com/video/fyHMpQKQ7YE9/)

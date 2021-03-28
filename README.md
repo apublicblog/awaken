@@ -44,6 +44,9 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
 1. YouTube w/ English subtitles: [PRIEST WARNING FROM ROME !!! MUST HEAR BEFORE YOU DIE](https://youtu.be/Z9ZvscQpo44)
 2. Bitchute backup w/o subtitles: [PRIEST'S WARNING FROM ROME - MUST HEAR BEFORE YOU DIE!](https://www.bitchute.com/video/7msMLDHn7Qfk/)
 
+有一个总结网站是介绍Q的入门知识和揭露深层政府的，里面很多视频我还没看：
+1. [Welcome PATRIOT - To The Great Awakening!](https://www.tapintothetruth.com/copy-of-help-it-s-my-first-time-her)
+
 我个人还推荐猪妹的视频（Member Only，目前只有她的频道会员可见）：
 
 1. [揭秘 | 光明会，共济会是如何控制这个世界的](https://youtu.be/XNFS5deTgiQ)

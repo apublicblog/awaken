@@ -107,6 +107,13 @@ Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对�
 
 小明出了一集视频专门揭露疫苗的问题：
 1. [打針是很安全的, 甚至隨時見上帝。 醫藥公司背後根本沒有陰謀！（驚天猛料）](https://youtu.be/VaghIPO5Pz8)
+2. 上面的视频已经被 YouTube 删除了，小明上传到了 Odysee：[打針是很安全的, 甚至隨時見上帝。 醫藥公司背後根本沒有陰謀！（驚天猛料）](https://odysee.com/@%E4%BD%8E%E7%B4%9A%E9%BB%91%E5%B0%8F%E6%98%8E:a/%E6%89%93%E9%87%9D%E6%98%AF%E5%BE%88%E5%AE%89%E5%85%A8%E7%9A%84%2C:1)
+3. CDC Vaccine Adverse Event Reporting System (VAERS), 第3栏 *Select vaccine characteristics* 要选 *COVID19*：<https://wonder.cdc.gov/VAERS.html>
+4. 相关专利 Patent：[System and Method for Testing for COVID-19](https://patents.google.com/patent/US20200279585A1/en) ([PDF](docs/US20200279585A1.pdf))
+5. 但是也有解释为什么上面的专利时间可以追溯到 2015 年的文章：[COVID-19 mentioned on 2015 patent application](https://english.rvo.nl/news/covid-19-mentioned-2015-patent-application)
+
+也推荐新闻小语的视频，因为 YouTube 对疫苗的揭露视频是全面封杀的，所以视频讲得很委婉了：
+1. [陨落的果果和菜刀（胡乱取个名字）](https://youtu.be/SktlAZ8zJ90)
 
 猪妹的会员视频里也有介绍目前使用的 PCR 检测方法会导致 false positive。现在主流媒体也开始报道说 WHO 确认了 PCR 检测带来的假阳性问题。以下是猪妹介绍 PCR 的视频：
 

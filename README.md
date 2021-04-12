@@ -166,6 +166,8 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 
 ## 外星人（Extraterrestrial, Interdimensional）
 
+推荐 Telegram 上的*晨牧人 靈性覺醒頻道*（<https://t.me/ChenmurenChannel>）。兜兜转转这么久，感觉这个笔记最有价值的东西是这个频道。一切的一切最终都是为了地球升维和灵魂觉醒。本来想删掉其他的东西来突出这个，但是想想如果没有其他信息作为铺垫，我也不会接触和接受这个频道里的信息。
+
 *Simon Parkes* 是一个外星人专家（hmm，不知道这么说准不准确）。他出现在记录片 *Confessions of an Alien Abductee* 中。他在片中介绍了自己从小被外星人“绑架”的经历，以及与外星人建立的情感链接。以下是记录片的节选片段，带中文字幕：
 
 1. [SIMON PARKES LOVES ALIENS AND DONALD TRUMP](https://youtu.be/VFgTp8ivlaI)
@@ -179,12 +181,13 @@ Simon Parkes 主页，包含他的 blogs 作为主要的消息发布渠道。他
 
 有一些书籍介绍了相关的外星人经历，其中的《海奥华预言》和《一的法则》经常被中文 YouTuber 提到：
 
-1. 海奥华预言，*Thiaoouba: The Golden Planet: A true report by the Author who was PHYSICALLY ABDUCTED to another planet*
+1. 海奥华预言，*Thiaoouba: The Golden Planet: A true report by the Author who was PHYSICALLY ABDUCTED to another planet* (负面能量，不推荐)
 2. 一的法则，*The Ra Material: Law of One*
 3. Simon Parkes 推荐：
     1. *It Awaits Us*
     2. *THE PANDORA QUEST (IT AWAITS US Book 2)*
-4. 赛斯书（<https://en.wikipedia.org/wiki/Seth_Material>），*The Individual and the Nature of Mass Events (A Seth Book)*，讲灵魂提升对事物的影响
+4. 赛斯书（<https://en.wikipedia.org/wiki/Seth_Material>），*The Individual and the Nature of Mass Events (A Seth Book)*，讲灵魂提升对事物的影响 （负面能量，不推荐）
+5. 异邦者，*Voyagers Volume I. The Sleeping Abductees*，*Voyagers Volume II. The Secrets of Amenti*
 
 <!-- 5. The Biggest Secret: The book that will change the World by David Icke -->
 

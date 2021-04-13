@@ -188,6 +188,7 @@ Simon Parkes 主页，包含他的 blogs 作为主要的消息发布渠道。他
     2. *THE PANDORA QUEST (IT AWAITS US Book 2)*
 4. 赛斯书（<https://en.wikipedia.org/wiki/Seth_Material>），*The Individual and the Nature of Mass Events (A Seth Book)*，讲灵魂提升对事物的影响 （负面能量，不推荐）
 5. 异邦者，*Voyagers Volume I. The Sleeping Abductees*，*Voyagers Volume II. The Secrets of Amenti*
+6. 莱萨塔档案，*The Lacerta Files* (<https://ufo.fandom.com/wiki/The_Lacerta_Files>)
 
 <!-- 5. The Biggest Secret: The book that will change the World by David Icke -->
 

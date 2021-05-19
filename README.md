@@ -37,7 +37,11 @@ Janet Ossebaard 之后又推出了 *The Sequel to the Fall of the Cabal*，是 F
     4. [THE SEQUEL TO THE FALL OF THE CABAL - PART 5](https://youtu.be/Oq-6ARQspBo)
     5. [THE SEQUEL TO THE FALL OF THE CABAL - PART 6](https://youtu.be/tBG70gIaB9s)
     6. [THE SEQUEL TO THE FALL OF THE CABAL - PART 7](https://youtu.be/BiupXihJLL8)
-3. 这两部纪念片的中文版也可以在猪妹的网站上观看：<https://dajuexing.org/qmovie/>
+
+目前这两部纪念片的中文版都可以在猪妹的网站上观看：
+
+1. <https://pigpiggirl.com/q/>
+2. <https://dajuexing.org/qmovie/>
 
 *共济会（Freemasonry or Masonry）* 和光明会的关系非常紧密。虽然不知道具体细节，但是一般认为共济会的最顶层就是光明会。他们虽然名字不一样，但是所对应的邪恶势力是一样的。上文提到的纪录片确实有点长，而这里有一个简短的视频介绍了我们现在这个世界所处的状态：
 
@@ -122,6 +126,8 @@ Mel K 和 Dr Charlie Ward的视频里还讨论了很多其他问题，包括对�
 “The virus cannot kill you, but fear can.”
 
 ## Donald J. Trump
+
+这一章节的内容由于被 Deep State 口岸的信息污染严重，很多情况已经不符合现在的情况发展了。有一些当时觉得非常有用的信息，现在来看却是虚假信息。不过我还是把内容保留在这里吧，算是一个留恋。
 
 有很多关于Trump的预言和解读。虽然在2021年1月20日之前什么事情都有可能发生，但是个人感觉目前 Trump 已经度过了最艰难的阶段：
 

@@ -234,9 +234,6 @@ Simon Parkes 也提到，人类正在从三维和四维空间向五维空间转�
 
 1. [大觉醒](https://awakeningera.org)
 
-*Lorie Ladd* 是一个提升导师（ascension teacher），在她的主页免费 sign up 后可以得到一个指导冥想的音频文件，大约四十分钟。以下是她的主页：
-
-1. LORIE LADD: <https://lorieladd.com/about>
 
 ### 关于神 the God
 

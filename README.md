@@ -168,6 +168,8 @@ Trump 有可能发布一些最初由 *John F. Kennedy (JFK)* 构想或准备发�
 
 推荐 Telegram 上的*晨牧人 靈性覺醒頻道*（<https://t.me/ChenmurenChannel>）。兜兜转转这么久，感觉这个笔记最有价值的东西是这个频道。一切的一切最终都是为了地球升维和灵魂觉醒。本来想删掉其他的东西来突出这个，但是想想如果没有其他信息作为铺垫，我也不会接触和接受这个频道里的信息。
 
+晨牧人现在创建了自己的 YouTube 频道（<https://www.youtube.com/channel/UC3MhRoiTqvk_vPNEX5Mp3dg/videos>），里面上传了她之前在 Telegram 群里的答疑音频所制作成的视频。这些视频做的非常精良，分成了小段，加入了文字，非常方便查看。
+
 *Simon Parkes* 是一个外星人专家（hmm，不知道这么说准不准确）。他出现在记录片 *Confessions of an Alien Abductee* 中。他在片中介绍了自己从小被外星人“绑架”的经历，以及与外星人建立的情感链接。以下是记录片的节选片段，带中文字幕：
 
 1. [SIMON PARKES LOVES ALIENS AND DONALD TRUMP](https://youtu.be/VFgTp8ivlaI)
